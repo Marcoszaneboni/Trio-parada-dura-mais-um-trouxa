@@ -1,1 +1,0 @@
-# Trio-parada-dura-mais-um-trouxa
